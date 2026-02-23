@@ -4,10 +4,11 @@ madaotheory , kuroshiro , takku , Arttherapist
 H.force
 therappy , Lemon snail , arumamai ayuka plus ,
 
-Fansly.com/Drainedkitten , Roxy Lovette
+Fansly.com/Drainedkitten , Roxy Lovette , aya kisaki , 
 
 reel (riru) ,
 Abubu ,
+[Akubinium] Puni Sube Mocchiri Seichouki ,
 Aehentai ,
 Akai (ugokashitari),
 Asrico700 ,
@@ -18,6 +19,7 @@ Bible black,
 Blk9201 ,
 CEO neet ,
 Casch ,
+Coug ,
 Chelodoy,
 Citcatcomb ,
 Clowenqq ,
