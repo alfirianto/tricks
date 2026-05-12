@@ -9,7 +9,7 @@ shinonome yuki , arumamai ayuka plus , yukino minato , yamamoto naoki | moriyama
 H.force
 therappy , Lemon snail , arumamai ayuka plus , [Akubinium] Puni Sube Mocchiri Seichouki , mamezou , 
 
-reddit: cuteeamyy , nymphet_angel , littleblondestudent , both_office_6168 , ariaflint , nami3neko , blackshotoo0 , misskenai , 
+reddit: cuteeamyy , nymphet_angel , littleblondestudent , both_office_6168 , ariaflint , nami3neko , blackshotoo0 , misskenai ,  lunawickedsoul , sleepalwaysforever , sexykaylababy , 
 
 twitter:
 lambda30v , 
@@ -141,6 +141,7 @@ kairunoburogu ,
 kajin(kajinman),
 kamuo ,
 kawa-v ,
+kemono , 
 kerosundae  ,
 kuchisake-onna,
 kinkymation ,
