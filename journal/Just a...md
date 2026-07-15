@@ -1,4 +1,4 @@
-GAMES SEN NO AIM:3.2 800dpi
+GAMES SEN AIM: 800dpi
 
 H.era
 madaotheory , kuroshiro , takku , Arttherapist , therappy , 
