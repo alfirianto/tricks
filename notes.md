@@ -1,6 +1,19 @@
 Watch list"
 Ruri Rocks , berserk ,
 
+Workout:
+Tips for Best ResultsControl the movement: Do not swing your body or use momentum to lift the weight.Keep shoulders down: Do not shrug your shoulders toward your ears as you raise your arms.Use light weight: Focus on high repetitions (12 to 15 reps) with a slow, steady release downward
+
+looks:
+buy Gatsby Moving Rubber
+buy Murray's for solid and short hair
+use Cleanser
+use sun screen everyday if spend outside 30 min 
+Lumify Eye Drops whiten eye
+If acne is persistent, use a salicylic acid cleanser or adapalene at night (start slowly).
+Wash your face morning and night.
+Wardah UV Shield Essential Gel Sunscreen Serum SPF 35 PA+++ 40 ml
+
 
 🎯 Treeree-Inspired Gaming Setup (Competitive)
 🖱️ Mouse — Aim & Flick Precision
