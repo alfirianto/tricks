@@ -1,5 +1,5 @@
 Watch list"
-Ruri Rocks , berserk ,
+Ruri Rocks , berserk , made in abyss , shiki ,  the seven deadly sins , one punch man , Overlord II
 
 Workout:
 Tips for Best ResultsControl the movement: Do not swing your body or use momentum to lift the weight.Keep shoulders down: Do not shrug your shoulders toward your ears as you raise your arms.Use light weight: Focus on high repetitions (12 to 15 reps) with a slow, steady release downward
