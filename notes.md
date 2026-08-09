@@ -12,6 +12,7 @@ looks:
 buy Gatsby Moving Rubber
 buy Murray's for solid and short hair
 use Cleanser
+use KRIM CUKUR KUMIS GILLETTE SHAVING CREAM FOAM 50 GR LEMON
 use sun screen everyday if spend outside 30 min 
 Lumify Eye Drops whiten eye
 If acne is persistent, use a salicylic acid cleanser or adapalene at night (start slowly).
