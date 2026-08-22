@@ -274,7 +274,7 @@ shin sei yariman gakuen enkou nikki,
 sydus,
 secret journey, -
 searyn,
-shinki art ,
+shinki art , -
 Sicmop ,
 Sadgravy ,
 skello,
