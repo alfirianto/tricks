@@ -194,6 +194,7 @@ manzai_sugar ,
 mizumizuni,
 maewix ,
 majin (company),
+majenta_rose
 marmalade mum,
 merrytail,
 meteorreb0rn ,
