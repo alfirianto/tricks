@@ -228,7 +228,7 @@ OVA Ikuiku♡Succubus Re-education #1, -
 Octi cumasian,
 owler ,
 Orange-peel,
-Oughta ,
+Oughta ,-
 onyx blade,
 opennsfwsp,
 Pantsushi,
