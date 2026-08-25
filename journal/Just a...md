@@ -88,8 +88,8 @@ chelodoy,
 camekirin,
 citcatcomb ,
 clowenqq ,
-cyberframe ,
-deepstroke ,
+cyberframe ,-
+deepstroke ,-
 delightss ,
 deik0,
 devine arms,
