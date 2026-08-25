@@ -3,8 +3,8 @@ GAMES SEN AIM: 800dpi
 Hentai.era
 madaotheory , kuroshiro , takku , Arttherapist , therappy , 
 
-thatpevert.com
-chifudoon gore
+thatpevert.com gore
+chifudoon , pokonyan
 
 yande.re
 aki99
