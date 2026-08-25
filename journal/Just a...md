@@ -261,6 +261,7 @@ rockset ,
 Redspike,
 Rushzilla ,
 Sane-person,
+shounen ga otona ni natta natsu , -
 santiage,
 sadgravy,
 sunori ,
