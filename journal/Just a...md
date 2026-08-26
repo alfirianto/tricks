@@ -69,7 +69,7 @@ bible black,
 blk9201 ,
 bellarus ,
 cEO neet ,
-casch ,
+caschlecook ,-
 casato
 coug ,
 calm (artist),
@@ -93,13 +93,13 @@ cyberframe ,-
 deepstroke ,-
 delightss ,
 deik0,
-devine arms,
 dawalixip2
 dako (dakosito),
 dd (ijegendd),
 demio (ai_generator),
 daily life of my country side,
 dendendo ,
+dragon breath,
 denhhijou,
 derpixon,
 dellie,
